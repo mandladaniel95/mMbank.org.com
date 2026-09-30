@@ -1,2 +1,2 @@
-# mMbank.co.za
+# mMbank.org.com
 mMbank
